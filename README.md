@@ -23,4 +23,4 @@ Antes de criar algo novo, entendo o que já existe (arquitetura, regras de negó
 
 ## Contato
 
-[LinkedIn](https://www.linkedin.com/in/ericky-analytics-38439a425/)
+[LinkedIn](https://www.linkedin.com/in/ericky-souza-38439a425/)
